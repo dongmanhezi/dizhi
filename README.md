@@ -1,12 +1,12 @@
 :bangbang::bangbang: 最新地址发布:bangbang::bangbang:
 ==
-:fire: :point_right: 【韩漫地址一】 ：https://www.hmzaixian.com
+:fire: :point_right: 【韩漫地址一】 ：https://www.hanmanzx.com
 ------
 :fire: :point_right: 【韩漫地址二】 ：https://www.hanmanmanhua.com
 ------
-:fire: :point_right: 【小说地址一】 ：https://www.jinshu7.top
+:fire: :point_right: 【小说地址一】 ：https://www.seqingxiaoshuo.net
 ------
-:fire: :point_right: 【小说地址二】 ：http://www.jinshu22.top
+:fire: :point_right: 【小说地址二】 ：https://www.smxiaoshuo.net
 ------
 :globe_with_meridians: :point_right: 【海外地址】 ：https://www.sesemanhua.com
 ------
