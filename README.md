@@ -1,8 +1,8 @@
 :bangbang::bangbang: 最新地址发布:bangbang::bangbang:
 ==
-:fire: :point_right: 【韩漫地址一】 ：https://www.hanmanzx.com
+:fire: :point_right: 【韩漫地址一】 ：https://www.hanmantianxia.com
 ------
-:fire: :point_right: 【韩漫地址二】 ：https://www.hanmanmanhua.com
+:fire: :point_right: 【韩漫地址二】 ：https://www.hanmanzx.com
 ------
 :fire: :point_right: 【小说地址一】 ：https://www.seqingxiaoshuo.net
 ------
